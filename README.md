@@ -1,1 +1,1 @@
-# rejouice
+REJOUICE® - Digital Brand Accelerator
